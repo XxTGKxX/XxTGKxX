@@ -1,4 +1,5 @@
-Hello, I'm TGK, but you can call me Bri!
+Hello, I'm Briggybean, but you can call me Bri!
+Formerly known as XxTGKxX.
 
 I'm a girl who makes Discord bots and Ren'Py games.
-I'm also the lead artist of Mistakes Were Made!
+I'm the lead artist of Mistakes Were Made and the creator of Callum, two work-in-progress video games.
